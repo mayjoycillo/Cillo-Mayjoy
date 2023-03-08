@@ -1,6 +1,6 @@
 # MAYJOY - CILLO
 
-## Sow and you will reap.
+## SOW AND YOU WILL REAP.
 
 ###### Group Members:
 ######                  Billonid, Faizza
